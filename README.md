@@ -2,6 +2,8 @@
 ==
 :heart: :point_right: 【最新地址】 ：[https://yhfls.cc/fls](https://yhfls.cc/fls)
 ------
+:heart: :point_right: 【最新地址】 ：[https://yhfls.one/fls](https://yhfls.one/fls)
+------
 :heart: :point_right: 【永久地址】 ：[https://yihaofls.cc/fls](https://yihaofls.cc/fls)
 ------
 :heart: :point_right: 【永久地址】 ：[https://3旻覇.yh301.xyz/q2国](https://3旻覇.yh301.xyz/q2国)
